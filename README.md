@@ -1,0 +1,2 @@
+# daigakudori
+Welcome to Japan
